@@ -1,1 +1,1 @@
-1. Studying GitHub
+Welcome to my GitHub profile!
